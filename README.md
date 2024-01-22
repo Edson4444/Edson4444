@@ -6,7 +6,7 @@ In my free time I like to play Video Games With my son and my wife, I like watch
 Would you like to meet me?
 
 
-[![Instagram Badge](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white&link=https://www.instagram.com/eddyluisperes)](https: / /instagram.com/eddyluisperes)
+[![Instagram Badge](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white&link=https://www.instagram.com/eddyluisperes)](https://www.instagram.com/eddyluisperes)
 
 [![Linkedin Badge](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white&link=https://www.linkedin.com/in/eddy-luis-7663b0242
 ) ] (https://www.linkedin.com/in/eddyluis)
