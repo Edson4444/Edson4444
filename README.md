@@ -1,5 +1,5 @@
 ### Hi there 👋
-My name is Eddy Luis from Brazil (🇧🇷). I work at Transportes Grupo Farrapos and am currently a Site Analyst.
+My name is Eddy Luis from Brazil (🇧🇷). I work at Transportes Grupo Farrapos and am currently a sistem Analyst.
 In my free time I like to play Video Games With my son and my wife, I like watching movies and anime (🎞️), I also like listening to music (🎵) and drinking beer (🍺).
 
 
